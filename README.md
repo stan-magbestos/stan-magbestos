@@ -3,7 +3,7 @@ here's some information</p>
 
 - I go by Vio
 - I am an adult <a href="https://emoji.gg/emoji/9833-cuteexclamationmarks"><img src="https://cdn3.emoji.gg/emojis/9833-cuteexclamationmarks.png" width="24px" height="24px" alt="cuteexclamationmarks"></a>
-- Sapphic oriented aroace & genderfluid <a href="https://emoji.gg/emoji/8018_aroace"><img src="https://cdn3.emoji.gg/emojis/8018_aroace.png" width="32px" height="32px" alt="aroace"></a> <a href="https://emoji.gg/emoji/5738-oriented-aroace-flag"><img src="https://cdn3.emoji.gg/emojis/5738-oriented-aroace-flag.png" width="32px" height="32px" alt="oriented_aroace_flag"></a>
+- Sapphic [Oriented Aroace](https://asexuals.fandom.com/wiki/Oriented_AroAce) & Genderfluid <a href="https://emoji.gg/emoji/8018_aroace"><img src="https://cdn3.emoji.gg/emojis/8018_aroace.png" width="32px" height="32px" alt="aroace"></a> <a href="https://emoji.gg/emoji/5738-oriented-aroace-flag"><img src="https://cdn3.emoji.gg/emojis/5738-oriented-aroace-flag.png" width="32px" height="32px" alt="oriented_aroace_flag"></a>
 - If I don't respond in game I am AFK or I forgor. My bad.
 - Para jugadoras de español, Mi español no es muy bien. Soy habla muy poquito.
 
